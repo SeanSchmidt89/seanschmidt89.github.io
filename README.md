@@ -1,1 +1,0 @@
-# seanschmidt89.github.io
